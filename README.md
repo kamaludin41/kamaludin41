@@ -1,4 +1,3 @@
-# Kamaludin-Ahmed
 
 # Hei, olen Kamaludin 
 
@@ -20,4 +19,4 @@ Suomi (sujuva), englanti (sujuva), somali (äidinkieli)
 
 ## Yhteystiedot
 Helsinki · 
-Kamaaludiinahmed@gmail.com
+Kamaaludiinahmed45@gmail.com
